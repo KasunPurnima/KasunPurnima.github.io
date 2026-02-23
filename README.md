@@ -3,7 +3,6 @@
 📱 **Mobile:** +64 22 08725223  
 📍 **Address:** No 322/1 Layard Street, Avondale, Auckland, New Zealand  
 📧 **Email:** kasunpurnima89@gmail.com  
-🛂 **Visa Type:** Work Visa (Full Time – Unrestricted)  
 
 ---
 
